@@ -29,7 +29,7 @@ Here are a few of my recent works:
 ---
 
 ### 📬 Let's Connect
-📸 Instagram: [@tiara_jeean]([https://instagram.com/yourusername](https://www.instagram.com/tiara_jeean?igsh=ZWZlb3VyeWRqbm01))
+📸 Instagram: [@tiara_jeean]([https://instagram.com/yourusername](https://www.instagram.com/tiara_jeean?igsh=ZWZlb3VyeWRqbm01)
 💌 Open for collaborations and creative projects!
 
 ---
